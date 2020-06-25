@@ -26,3 +26,6 @@ As James Dean said :
 
 > Dream as if you'll live forever. 
 > Live as if you'll die today.
+
+
+<img src= "https://www1.wdr.de/radio/wdr4/wort/promi-boulevard/james-dean-124~_v-gseapremiumxl.jpg"/>
