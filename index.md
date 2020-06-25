@@ -19,3 +19,10 @@ Auf den Filmplakaten ist er zu sehen, wie er in Jeans, weißem T-Shirt und roter
 * grazil
 * heroisch
 * intelligent
+
+
+
+As James Dean said : 
+
+> Dream as if you'll live forever. 
+> Live as if you'll die today.
